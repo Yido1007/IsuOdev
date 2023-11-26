@@ -1,6 +1,6 @@
 # IsuOdev
 [Keyvan Arasteh](https://github.com/keyvanarasteh)
 
-[alt text](https://resmim.net/i/instagram.ZwVesI)
-[alt text](https://resmim.net/i/istanbull.ZwVoGb)
-[alt text](https://resmim.net/i/ytmusic.ZwVyXZ)
+[alt text](https://resimlink.com/4PU9_0F6fGg)
+[alt text](https://resimlink.com/3zuYUsK)
+[alt text](https://resimlink.com/wqi7PH6tQ0)
